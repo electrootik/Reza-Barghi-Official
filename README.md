@@ -5,7 +5,6 @@
 
 رضا برقی (Reza Barghi)![Reza Barghi](IMG_1599.jpeg)
 
-![Reza Barghi Industrial](IMG_20251127_003356_682.webp)
 
 ![Reza Barghi Work](20220527_140807.jpg) 
 
